@@ -9,10 +9,10 @@
 ### 🎓 Progresso na Faculdade
 
 📚 Sistemas de Informação – Uni7  
-📅 Semestre atual: **2º / 8**
+📅 Semestre atual: **4º / 8**
 
 📈 Progresso:  
-🔲🔲🔲🔲🔲🔲🟩🟩 3º Semestre 
+🔲🔲🔲🔲🔲🟩🟩🟩 4º Semestre 
 
 ---
 
