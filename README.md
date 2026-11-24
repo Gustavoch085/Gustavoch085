@@ -43,14 +43,14 @@
 
 ### 📫 Contato
 
-[![Instagram](https://img.shields.io/badge/Instagram-@gustavo_ch1918-E4405F?logo=instagram&logoColor=white)](https://www.instagram.com/gustavo_ch1918/)  
+[![Instagram](https://img.shields.io/badge/Instagram-@gustavoch085-E4405F?logo=instagram&logoColor=white)](https://www.instagram.com/gustavo_ch1918/)  
 [![Email](https://img.shields.io/badge/Email-br.afiliado@gmail.com-D14836?logo=gmail&logoColor=white)](mailto:br.afiliado)
 
 ---
 
 ### 📂 Projetos
 
-🚧 Em breve!
+No Perfil! 
 
 
 
